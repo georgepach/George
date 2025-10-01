@@ -70,8 +70,7 @@ I’m passionate about turning ideas into digital solutions — from mobile apps
 
 ## 📫 Let’s Connect
 📧 Email: [georgebinsar45@gmail.com](mailto:georgebinsar45@gmail.com)  
-💼 LinkedIn: [linkedin.com/in/georgebnsr](https://linkedin.com/in/georgebnsr) *(add if you have)*  
-🌐 Portfolio: [View Here](https://drive.google.com/file/d/10JanvCF3F14vunWbYWjvie7sGkVipWwc/view?usp=drive_link)  
+💼 LinkedIn: [linkedin.com/in/georgebnsr](https://linkedin.com/in/georgebnsr) 
 
 ---
 
